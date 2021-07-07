@@ -1,4 +1,4 @@
-- 👋 Hi, I’m elenamandrou
+- 👋 Hi, I’m Elena
 - 👀 I’m interested in Fluorescence Lifetime Imaging, Cancer Signalling & Migration
 - 📫 How to reach me: on my academic email (2513930m@student.gla.ac.uk) or personal email (elena.mandrou@gmail.com) or on Twitter @EMandrou
 
